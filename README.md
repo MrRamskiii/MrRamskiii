@@ -44,4 +44,4 @@
 
 𝒎𝒂𝒅𝒆 𝒃𝒚 @awsoldierboy
 
-𝒅𝒊𝒗𝒊𝒅𝒆𝒓 𝒄𝒓𝒆𝒅𝒊𝒕𝒔 https://www.tumblr.com/astrumaur/757988217457967104/yellow-recolor-of-bloody-pentagram-and-eyes?source=share
+[𝒅𝒊𝒗𝒊𝒅𝒆𝒓 𝒄𝒓𝒆𝒅𝒊𝒕𝒔](https://www.tumblr.com/astrumaur/757988217457967104/yellow-recolor-of-bloody-pentagram-and-eyes?source=share)
