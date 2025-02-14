@@ -11,12 +11,12 @@
 
 # 𝒑𝒐𝒏𝒚 𝒕𝒐𝒘𝒏 𝒊𝒏𝒇𝒐𝒓𝒎𝒂𝒕𝒊𝒐𝒏
 
-please always feel free to come up to me and ask me about my interests, i really adore talking about them !
+𝒑𝒍𝒆𝒂𝒔𝒆 𝒂𝒍𝒘𝒂𝒚𝒔 𝒇𝒆𝒆𝒍 𝒇𝒓𝒆𝒆 𝒕𝒐 𝒄𝒐𝒎𝒆 𝒖𝒑 𝒕𝒐 𝒎𝒆 𝒂𝒏𝒅 𝒂𝒔𝒌 𝒎𝒆 𝒂𝒃𝒐𝒖𝒕 𝒎𝒚 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔, 𝒊 𝒓𝒆𝒂𝒍𝒍𝒚 𝒂𝒅𝒐𝒓𝒆 𝒕𝒂𝒍𝒌𝒊𝒏𝒈 𝒂𝒃𝒐𝒖𝒕 𝒕𝒉𝒆𝒎. 𝒊 𝒘𝒐𝒖𝒍𝒅 𝒍𝒐𝒗𝒆 𝒕𝒐 𝒎𝒂𝒌𝒆 𝒏𝒆𝒘 𝒎𝒖𝒕𝒖𝒂𝒍𝒔 𝒘𝒊𝒕𝒉 𝒔𝒊𝒎𝒊𝒍𝒂𝒓 𝒊𝒏𝒕𝒆𝒓𝒆𝒔𝒕𝒔
 
-i would love to make new mutuals with interests such as the ones i have !
-
-  <img width = "50%" src="[https://i.imgur.com/8BgVXcY.png](https://github.com/user-attachments/assets/230feb3e-5ad2-44ad-87bc-6af3e5f4be9e)">
-<img width = "50%" src="[https://i.imgur.com/8BgVXcY.png](https://github.com/user-attachments/assets/3e4a3956-7a54-49a9-8b65-8f3322f9df2a)">
-</div>!
+<div align="center">
+  <img width = "24%" src="https://github.com/user-attachments/assets/8d182f2d-7fbb-4c3f-b750-02c0b39eb34c">
+<img width = "20%" src="https://github.com/user-attachments/assets/9db11a41-c7b4-4496-9675-44a350d92982">
+</div>
 
 ![tumblr_9fd56ce470fd1b61345e765cac829d90_3eb0936c_2048](https://github.com/user-attachments/assets/cd57300c-ea61-43d2-a805-be88f5730357)
+
