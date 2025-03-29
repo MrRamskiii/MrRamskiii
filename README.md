@@ -42,6 +42,6 @@
 
 ![tumblr_e59beffa7417b6c0ba18fb903e58ab3c_676ab039_2048](https://github.com/user-attachments/assets/69981901-3d5a-4307-b6d0-0895334c60f0)
 
-𝒎𝒂𝒅𝒆 𝒃𝒚 @awsoldierboy
+𝒎𝒂𝒅𝒆 𝒃𝒚 [@awsoldierboy](https://github.com/awsoldierboy)
 
 [𝒅𝒊𝒗𝒊𝒅𝒆𝒓 𝒄𝒓𝒆𝒅𝒊𝒕𝒔](https://www.tumblr.com/astrumaur/757988217457967104/yellow-recolor-of-bloody-pentagram-and-eyes?source=share)
